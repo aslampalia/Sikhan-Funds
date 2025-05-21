@@ -1,1 +1,0 @@
-# Sikhan-Funds
